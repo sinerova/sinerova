@@ -1,3 +1,3 @@
-- Hi, I’m @sinerova
+- Hi, I’m Dylan
 - Jamestown High School class of 2022
 - Interested in IT
